@@ -7,6 +7,6 @@ Moses Nyagudi  123062
 
 Caleb Ngugi Njagi 121789
 
-Abdullahi Mohammed 121662
+Abdikadir Abdullahi Mohammed 121662
 
-Ivy Morelle Adhiambo
+Ivy Morelle Adhiambo 120116
